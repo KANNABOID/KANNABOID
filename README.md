@@ -1,4 +1,1 @@
-## I FUCKING CARE ABOUT YOU, YOU ARE JUST IGNORANT
-## ROPE AND CUTTER IS MY ONLY HOPE
-## DO YOU EVEN FUCKING CARE
-## IM GOING TO KILL MYSELF
+## iam prolly focus on main account rather than this account, so dont whine if you didnt get added.
