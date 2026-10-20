@@ -1,2 +1,1 @@
- <img src="https://files.catbox.moe/72fmuf.png" width="700" align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?
+ <img src="https://img.sanishtech.com/u/06d5fbdca5a8ba37bdc377732b8025d6.png" width="2050" align="center">
